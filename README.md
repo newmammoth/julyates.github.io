@@ -1,1 +1,0 @@
-# julyates.github.io
